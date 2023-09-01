@@ -1,2 +1,0 @@
-# GouravBhaiya
-Spirituality Courses 
